@@ -1,1 +1,1 @@
-# projektni_zadatak_kuzmic
+# lucija_kuzmic_projektni_zadatak_3
